@@ -1,6 +1,6 @@
 I am luduvigo. I build products, mostly in web3. 
 
-I’ve done many things so far, including founding startups that raised millions of dollars, leading tech teams, organising meetups, being part of many communities in the Startup and Crypto echosystem, organising football tournaments, being addicted to Michelin-starred restaurants, and many more.
+I’ve done many things so far, including founding startups that raised millions of dollars, leading tech teams, organising meetups, being part of many communities in the Startup and Crypto ecosystem, organising football tournaments, being addicted to Michelin-starred restaurants, and many more.
 
 You can find me here:
 
